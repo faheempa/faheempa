@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Faheem P A
-- 👀 I love in coding
+- 👀 I love coding
 - 🌱 I’m currently persuing engineering in computer science
 - 📫 Reach me at faheempa788@gmail.com
