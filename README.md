@@ -1,4 +1,4 @@
 - 👋 Myself Faheem P A
-- 👀 Passionate Coder
+- 👀 Passionate programmer
 - 🌱 Currently persuing engineering in computer science
 - 📫 Reach me at faheempa788@gmail.com
